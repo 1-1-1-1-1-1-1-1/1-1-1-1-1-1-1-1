@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @1-1-1-1-1-1-1-1 (Nik Heneralov)
 - 👀 I’m interested in all, especially programming, math, music, science, physics, biology, chemistry, psycology etc. Also: people's behaviour in different situations, in interests, in the people's meaning, etc.
-- 🌱 I’m currently learning ~the course of chemistry (made as for by uni programs) in 10 days, by Catherine E. Hausecroft, Edwin C. Constable ("Chemistry An Integrated Approach")~ math and the modern theory of chess.
+- 🌱 I’m currently learning ~the course of chemistry (made as for by uni programs) in 10 days, by Catherine E. Hausecroft, Edwin C. Constable ("Chemistry An Integrated Approach")~ math and the modern theory of chess. OK, also --- programming.
 - 💞️ I’m looking to collaborate on life.
 - 📫 How to reach me: [@RIP_existing](https://t.me/RIP_existing) at Telegram; me2001.com@gmail.com on [gmail.com](gmail.com).
 
